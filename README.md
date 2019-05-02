@@ -1,2 +1,2 @@
-# rorqvistplanet
+# Andreas Rörqvist
 Andreas Douglas Rörqvist
